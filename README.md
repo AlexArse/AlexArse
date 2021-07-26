@@ -16,5 +16,5 @@ Them affeliate programs are chasing my online startup, Dramatic Entrancing. Do y
 contact@DramaticEntrancing.com
 
 - 😎 Personal inquiries:
-Wanna date? Visit? Just wnat to call me a friend? Send to:
+Wanna date? Visit? Just want to call me a friend? Send to:
 alexarse@gmail.com
